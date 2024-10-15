@@ -1,3 +1,0 @@
-Lenovo
-LAPTOP-669RBTSC 
-Monday, October 14, 2024  10:01:27 PM
